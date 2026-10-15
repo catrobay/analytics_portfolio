@@ -46,6 +46,6 @@
 3. Маркетинговая кампания окупилась за счёт роста повторных покупок.
 
 ---
-**Автор:** [Которобай Дарья]
-**Контакты:** [- Email: d.kotorobay@mail.ru
-- LinkedIn: https://www.linkedin.com/in/daria-analyst/]
+**Автор:** Которобай Дарья
+**Контакты:** Email: d.kotorobay@mail.ru
+LinkedIn: https://www.linkedin.com/in/daria-analyst/
